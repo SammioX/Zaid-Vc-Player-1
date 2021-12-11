@@ -1,4 +1,4 @@
-<h2 align="centre"> ᴢᴀɪᴅ ᴠᴄ ᴘʟᴀʏᴇʀ🔥</h2>
+<h2 align="centre"> SAMMERO🔥</h2>
 
 ## SORRY FOR OUR PROJECTS DELETED BY GITHUB FLAGGED
 
